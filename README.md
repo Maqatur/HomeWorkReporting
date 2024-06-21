@@ -1,0 +1,5 @@
+![Снимок экрана 2024-06-21 230731](https://github.com/Maqatur/HomeWorkReporting/assets/155440637/ce0de909-0b35-4add-a92d-d10dd7b94600)
+![Снимок экрана 2024-06-21 230910](https://github.com/Maqatur/HomeWorkReporting/assets/155440637/eb843f4d-dee0-4f89-b6dd-92f22db1cdcb)
+![Снимок экрана 2024-06-21 231252](https://github.com/Maqatur/HomeWorkReporting/assets/155440637/a1e7d9a1-edf9-42eb-95d1-e0c199acbc78)
+![Снимок экрана 2024-06-21 231326](https://github.com/Maqatur/HomeWorkReporting/assets/155440637/433e1ba4-2189-41a9-ac87-7cda938e8867)
+![Снимок экрана 2024-06-21 231408](https://github.com/Maqatur/HomeWorkReporting/assets/155440637/e4f6c22c-895e-4565-a0cb-b09279c6ea64)
